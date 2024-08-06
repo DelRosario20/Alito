@@ -9,3 +9,11 @@ Atentamente para ḿi Alito, te quiero muchito.
 ## Miyata GOD
 
 Volg merecía ganar. 
+
+## Miedo
+
+Estoy expresando miedo ante el olor. 
+
+### Preocupación
+
+O huele a quemado no sé. JAHKHA
