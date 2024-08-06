@@ -1,4 +1,4 @@
-#Alito y Alansito
+# Alito y Alansito
 
 Atentamente para ḿi Alito, te quiero muchito. 
 
@@ -6,6 +6,6 @@ Atentamente para ḿi Alito, te quiero muchito.
 
 **Fecha**: 5 de agosto de 2024
 
-##Miyata GOD
+## Miyata GOD
 
 Volg merecía ganar. 
